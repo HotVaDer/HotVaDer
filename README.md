@@ -12,7 +12,7 @@ Hi — I'm Stylianos! I’m studying Computer Science at the University of Cypru
 
 ## What I’m Into
 - 🔭 Learning new programming concepts and building mini-projects  
-- Calisthenics
+- 🤸🏻‍♂️Calisthenics
 - 🤝 Open to collaboration and friendly guidance from others
 
 ## Want to Connect?
